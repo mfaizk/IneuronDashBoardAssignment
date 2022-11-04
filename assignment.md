@@ -41,4 +41,4 @@
 
 -https://mfaizk.me/
 
-> # NOTE -: All Assignment are already submitted on time to hitesh sir by google form link that sir had sent, but assignmnet submission is not visible on my course analytics of ineuron dashboard so ,I ma submitting them here again
+> # NOTE -: All Assignment are already submitted on time to hitesh sir by google form link that sir had sent, but assignmnet submission is not visible on my course analytics of ineuron dashboard so ,I am submitting them here again
